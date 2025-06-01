@@ -78,3 +78,23 @@ This work is licensed under the **Creative Commons Attribution-NonCommercial 4.0
 ---
 
 **🌀 Activate. Archive. Ascend. — The ACO Way.**
+My list GOOGLE YUTUBE ACCOUNTS
+Google brand accounts
+Today’s Briefing online is about finding where files are stored online ni my own
+CYBErspacE  CULture Club Publishing
+Independent AUDIO Video photos,  documents
+Mp3 and mp4 and yo tube videos
+BRAND ACCOUNTS WILL HAVE SOME OF MY VIDEOS
+1.	ACE Metaphysica lnstitute
+2.	ACO CLUB
+3.	ACO RADIO CLUB
+4.	Alien Contact Org
+5.	TJ Morris ACO LLC
+6.	TJ Morris Agency (ACIR-AQCO-ACE) Media News Publishing
+7.	TJ Morris Media
+8.	TJ Morris.org
+9.	TJ Morris ET
+10.	TheresaJMorris (limited to Youtube)
+11.	4582@pages.plusgoogle.com
+
+
